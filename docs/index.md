@@ -1,1 +1,1 @@
-Kaczka pstra dziatki ma
+Kaczka pstra dziatki ma, siedzi
